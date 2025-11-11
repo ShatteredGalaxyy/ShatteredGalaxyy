@@ -1,9 +1,12 @@
-<img align=center width="500" height="30" alt="1000068376" src="https://github.com/user-attachments/assets/3616048c-69d5-4fa1-9372-21af0473cdbf" />
- 
-<img align=center alt="1000068377" src="https://github.com/user-attachments/assets/959e9b73-b763-49b9-a422-f024dffe6cde">
+<img align=center width="290" height="20" alt="1000076698" src="https://github.com/user-attachments/assets/7cdf6dcb-83af-42d7-a211-bf5e219f71dd"/>
+
+
+
+<img align=center alt="1000076681" src="https://github.com/user-attachments/assets/97e845a7-4729-4444-af22-bb8d5f556baf"/>
+
 ㅤ
 
-<p align=center> ᴛʜᴇ ᴍᴏᴏɴ ᴡɪʟʟ ꜱɪɴɢ ᴀ ꜱᴏɴɢ ꜰᴏʀ ᴍᴇ, <br> ɪ ʟᴏᴠᴇᴅ ʏᴏᴜ ʟɪᴋᴇ ᴛʜᴇ ꜱᴜɴ.<br> ⋆༺.˚ ☾ ⋆ 𖤓 ˚.༻⋆ </p> 
+<p align=center>ᴡɪᴛʜɪɴ ᴇᴠᴇʀʏ ʙᴜɪʟᴅɪɴɢ ᴍᴀᴅᴇ ᴡɪᴛʜ ᴘʀɪᴅᴇ, ᴛʜᴇ ᴀʀᴄʜɪᴛᴇᴄᴛ ɪꜱ ᴛʀᴀᴘᴘᴇᴅ ɪɴꜱɪᴅᴇ<br>ʙʟᴇᴇᴅɪɴɢ ᴘᴀɪɴᴛ, ᴀ ꜱʜᴀᴛᴛᴇʀᴇᴅ ʜᴇᴀʀᴛ<br>ᴛʜᴀᴛ'ꜱ ᴡʜᴀᴛ ᴍᴀᴋᴇꜱ ᴀ ᴡᴏʀᴋ ᴏꜰ ᴀʀᴛ<br>✎ᝰ.ᐟ⋆⑅˚₊</p> 
  <p align=center> 
 _______________________________________</p>
 
