@@ -1,8 +1,8 @@
-<img align=center width="290" height="20" alt="1000076698" src="https://github.com/user-attachments/assets/7cdf6dcb-83af-42d7-a211-bf5e219f71dd"/>
+<img align=center width="290" height="20" alt="1000076698" src="https://github.com/user-attachments/assets/7c060405-ea0c-4ff7-8901-dcadadbe8f0f" />
 
 
 
-<img align=center alt="1000076681" src="https://github.com/user-attachments/assets/97e845a7-4729-4444-af22-bb8d5f556baf"/>
+<img align=center alt="1000076681" src="https://github.com/user-attachments/assets/21ad0a04-d9a8-4b6e-90e1-7b724904d9a7"/>
 
 ㅤ
 
@@ -11,4 +11,4 @@
 _______________________________________</p>
 
 
-<p align=center> 𝙶𝚊𝚕, 𝙶𝚊𝚕𝚊𝚡𝚢 &nbsp── .✦. ──&nbsp 𝚂𝚑𝚎/𝙷𝚎𝚛 &nbsp</p>
+<p align=center> 𝙶𝚊𝚕, 𝙶𝚊𝚕𝚊𝚡𝚢 &nbsp── .✦. ──&nbsp 𝚂𝚑𝚎&nbsp&nbsp/&nbsp&nbsp𝙷𝚎𝚛  &nbsp</p>
