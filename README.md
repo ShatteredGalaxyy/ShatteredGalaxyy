@@ -1,15 +1,15 @@
-<div align=center > <img width="290" height="20" alt="1000076698" src="https://github.com/user-attachments/assets/7c060405-ea0c-4ff7-8901-dcadadbe8f0f"/> </div>
+<img align=center width="1773" height="50" alt="1000081071" src="https://github.com/user-attachments/assets/ace6966f-530c-42d8-887d-5a49cadb98f7" />
 
 
 
-<div align=center> <img alt="1000076681" src="https://github.com/user-attachments/assets/21ad0a04-d9a8-4b6e-90e1-7b724904d9a7"/> </div>
+<img align=center width="2048" height="2048" alt="1000081065" src="https://github.com/user-attachments/assets/d962cfef-1104-4d4b-8e0c-bdbaeafa8209" />
 
 ㅤ
 
-<p align=center>ᴡɪᴛʜɪɴ ᴇᴠᴇʀʏ ʙᴜɪʟᴅɪɴɢ ᴍᴀᴅᴇ ᴡɪᴛʜ ᴘʀɪᴅᴇ,<br>ᴛʜᴇ ᴀʀᴄʜɪᴛᴇᴄᴛ ɪꜱ ᴛʀᴀᴘᴘᴇᴅ ɪɴꜱɪᴅᴇ<br>ʙʟᴇᴇᴅɪɴɢ ᴘᴀɪɴᴛ, ᴀ ꜱʜᴀᴛᴛᴇʀᴇᴅ ʜᴇᴀʀᴛ<br>ᴛʜᴀᴛ'ꜱ ᴡʜᴀᴛ ᴍᴀᴋᴇꜱ ᴀ ᴡᴏʀᴋ ᴏꜰ ᴀʀᴛ<br>✎ᝰ.ᐟ⋆⑅˚₊</p> 
+<p align=center>ᴛʜᴇ ᴅᴀʏ ᴀꜰᴛᴇʀ ʏᴏᴜ ꜱᴛᴏʟᴇ ᴍʏ ʜᴇᴀʀᴛ,<br>ᴇᴠᴇʀʏᴛʜɪɴɢ ɪ ᴛᴏᴜᴄʜᴇᴅ ᴛᴏʟᴅ ᴍᴇ<br>ɪᴛ ᴡᴏᴜʟᴅ ʙᴇ ʙᴇᴛᴛᴇʀ ꜱʜᴀʀᴇᴅ ᴡɪᴛʜ ʏᴏᴜ </p> <p align=center> ˖ ⊹ ࣪ ﹏﹏﹏﹏𓊝﹏𓂁﹏﹏﹏﹏⊹ ࣪ ˖<br>°‧ 𓆝 𓆟 𓆞 ·｡</p> 
  <p align=center> 
 _______________________________________</p>
 
 
-<p align=center> 𝙶𝚊𝚕, 𝙶𝚊𝚕𝚊𝚡𝚢 &nbsp── .✦. ──&nbsp 𝚂𝚑𝚎&nbsp&nbsp/&nbsp&nbsp𝙷𝚎𝚛  &nbsp</p>
+<p align=center> 𝙶𝚊𝚕, 𝙶𝚊𝚕𝚊𝚡𝚢 &nbsp── .✦. ──&nbsp 𝚂𝚑𝚎 / 𝙷𝚎𝚛 &nbsp</p>
  
