@@ -1,14 +1,25 @@
-<img align=center width="1773" height="50" alt="1000081071" src="https://github.com/user-attachments/assets/ace6966f-530c-42d8-887d-5a49cadb98f7" />
+<p align=center>୧‿̩͙< ˖︵ ꕀ⠀ ✶⠀ ꕀ ︵˖ ‿̩͙୨<br>
+_______________________________________</p>
 
+<img align=center src=https://files.catbox.moe/h69yvs.png>
+<p align=center>ꜰɪɴɪꜱʜɪɴɢ ᴇɪɢʜᴛ ᴏʀ ɴɪɴᴇ? &nbsp &nbsp &nbsp &nbsp &nbsp<br>ᴛᴇʟʟ ᴍᴇ,<br> &nbsp &nbsp &nbsp &nbsp &nbsp ᴡʜᴀᴛꜱ ᴛʜᴇ ᴘᴇʀꜰᴇᴄᴛ ᴛɪᴍᴇ? </p>
+<p align=center> ˖&nbsp  ݁ 𖥔. &nbsp ₊°｡ &nbsp ❆ &nbsp ｡°₊ &nbsp .𖥔 ݁ ˖
+ <br> @mrmichaelmike
+</p> 
+ 
+ 
 
-<img align=center width="2048" height="2048" alt="1000081065" src="https://github.com/user-attachments/assets/d962cfef-1104-4d4b-8e0c-bdbaeafa8209" />
-
-ㅤ
-
-<p align=center>ᴛʜᴇ ᴅᴀʏ ᴀꜰᴛᴇʀ ʏᴏᴜ ꜱᴛᴏʟᴇ ᴍʏ ʜᴇᴀʀᴛ,<br>ᴇᴠᴇʀʏᴛʜɪɴɢ ɪ ᴛᴏᴜᴄʜᴇᴅ ᴛᴏʟᴅ ᴍᴇ<br>ɪᴛ ᴡᴏᴜʟᴅ ʙᴇ ʙᴇᴛᴛᴇʀ ꜱʜᴀʀᴇᴅ ᴡɪᴛʜ ʏᴏᴜ </p> <p align=center> ˖ ⊹ ࣪ ﹏﹏﹏﹏𓊝﹏𓂁﹏﹏﹏﹏⊹ ࣪ ˖<br>°‧ 𓆝 𓆟 𓆞 ·｡</p> 
- <p align=center> 
+<p align=center> 
 _______________________________________</p>
 
 
 <p align=center> 𝙶𝚊𝚕, 𝙶𝚊𝚕𝚊𝚡𝚢 &nbsp── .✦. ──&nbsp 𝚂𝚑𝚎 / 𝙷𝚎𝚛 &nbsp</p>
- 
+
+<p align=center> 
+sp is a wip , sign <a href=https://galaxy.atabook.org/> ata </a> </p>
+<p align=center>
+⌯⌲ « ɢɪ , ᴀᴠᴀᴛᴀʀ , ᴀʀᴄᴀɴᴇ , ɢᴍʏᴛʜ , ᴛᴍᴀ , ʜꜱʀ » </p>
+
+<p align=center> 
+_______________________________________</p> <p align=center>
+ ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ </p>
