@@ -16,7 +16,7 @@ _______________________________________</p>
 <p align=center> 𝙶𝚊𝚕, 𝙶𝚊𝚕𝚊𝚡𝚢 &nbsp── .✦. ──&nbsp 𝚂𝚑𝚎 / 𝙷𝚎𝚛 &nbsp</p>
 
 <p align=center> 
-sp is a wip , sign <a href=https://galaxy.atabook.org/> ata </a> </p>
+<a href=https://shatteredgalaxyy.straw.page> strawpage</a> , <a href=https://galaxy.atabook.org/> atabook </a> </p>
 <p align=center>
 ⌯⌲ « ɢɪ , ᴀᴠᴀᴛᴀʀ , ᴀʀᴄᴀɴᴇ , ɢᴍʏᴛʜ , ᴛᴍᴀ , ʜꜱʀ » </p>
 
